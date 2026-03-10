@@ -9,3 +9,6 @@ good evening po besfren, last day po ti february'n, musta ngy pon?..okay ka lang
 
  # march1
  ------march 1, Sunday...hello besfren musta kan ngy po?. han ka met po nag on online or in restrict nak po?...besfren march'en po plss besfren sorry akun if nasaktan ka kenyak ibagam pon ah besfren, ur urayen ka po latta kanayun. besfren always pray'k po nga ayus ka lang dta kanayun ken naragsak ka po. besfren miss kan po sobra talaga no joke, plss pon ah agparikna kan pls lang po besfren,,,basta TAKE CARE ALWAYS PO BESFREN AND I LOVE YOU, STILL WAITING NAK PO LATTA KENYAM..
+
+ # march 10
+ besfren miss ka pon parikna kan pon ah plss, ingat ka kanayun po dta wen, nagadu po chismiss ko kenyamun besfren huhu,,,waiting nak po latta uray ibagam nga eme eme ak nga chat chat chat kenka basta chat naka latta. I love you kanayun, always take care and be happy po,,,pagprapray ka always po,,,
