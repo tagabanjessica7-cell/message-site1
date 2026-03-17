@@ -12,3 +12,6 @@ good evening po besfren, last day po ti february'n, musta ngy pon?..okay ka lang
 
  # march 10
  besfren miss ka pon parikna kan pon ah plss, ingat ka kanayun po dta wen, nagadu po chismiss ko kenyamun besfren huhu,,,waiting nak po latta uray ibagam nga eme eme ak nga chat chat chat kenka basta chat naka latta. I love you kanayun, always take care and be happy po,,,pagprapray ka always po,,,
+
+kitam man hanna met binasa haha
+
